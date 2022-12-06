@@ -10,7 +10,14 @@ My best Digital Halloween OC: Gory Marry💀
 
 Codm UID: 6744859888687513601
 
-![318087974_1481859045557821_6239123236653508180_n](https://user-images.githubusercontent.com/119917507/205856719-3c26f4ca-cc1e-43c7-a31d-59e1abf0e221.jpg)
+![318087974_1481859045557821_6239123236653508180_n](https://user-images.githubusercontent.com/119917507/205867737-7cac2c26-0cb7-4a5f-ab44-1e925363573c.jpg)
+
+Arena Brakeout ID: 4254024869
+
+
+![318246288_812147683204601_7110658335132597193_n](https://user-images.githubusercontent.com/119917507/205868630-7ceddd3b-598d-4ca4-baef-ca13b0230e37.jpg)
+
+
 <!--
 **MarkTupas/MarkTupas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
