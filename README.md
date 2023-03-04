@@ -1,4 +1,4 @@
-### Hi, Mark Tupas o pwedering Ark tawag niyo saakin mga pre☺.
+### Hi, Mark Tupas o pwedering MCT tawag niyo saakin mga ka coderist☺.
 IG: https://www.instagram.com/markey_mation/
 
 Dahil coffee lover ako:
